@@ -1,0 +1,7 @@
+- 👋 Hola, que tal? mi nombre es Emmanuel Vasquez. (Krazy)
+- ⚡ Me gustan la Astronomía y la Programación
+- 💎 Mis géneros de música favoritos: Vallenato, Freestyle, Rap, Electrónica, 80's. 
+- 🌌 Me gusta ayudar a los demás y ser una buena persona para con todos los que me rodean. 
+- 📫 Podés contactarme por medio de mi gmail o facebook:
+- E-mail: vasquezemmanuel42@gmail.com
+- Facebook: @EmmanuelVasquez
